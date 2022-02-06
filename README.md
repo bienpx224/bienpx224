@@ -9,7 +9,7 @@
 - 🔭 I’m currently working about Mobile, Web, Unity
 - 🌱 I’m currently learning Blockchain
 - 👯 I’m looking to collaborate on Blockchain projects
-- 🤔 I’m looking for help with Metaverse, Game NFT
+- 🤔 I’m looking for help with Metaverse, 3D Tech, Game NFT
 - 💬 Ask me about the change to cooperate
 - 📫 How to reach me: [Telegram](https://telegram.me/bienpx224), [Discord](https://discord.com/users/8746)
 - ⚡ I'm so happy to connect. 
