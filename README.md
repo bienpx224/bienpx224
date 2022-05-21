@@ -11,5 +11,5 @@
 - 👯 I’m looking to collaborate on Blockchain projects
 - 🤔 I’m looking for help with Metaverse, 3D Tech, Game NFT
 - 💬 Ask me about the change to cooperate
-- 📫 How to reach me: [Telegram](https://telegram.me/bienpx224), [Discord](https://discord.com/users/8746)
+- 📫 How to reach me: [Telegram](https://telegram.me/bienpx224), [Discord](https://discord.com/users/8746) [Twitter](https://twitter.com/BienPham_BK)
 - ⚡ I'm so happy to connect. 
