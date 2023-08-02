@@ -6,7 +6,7 @@
 -->
 
 - 😄 I'm Software Developer 5+ years 
-- 🔭 I’m currently working about Mobile, Web, Unity
+- 🔭 - I'm currently working on projects for the web, mobile, and Unity (mostly GAMES). 
 - 🌱 I’m currently learning Blockchain
 - 👯 I’m looking to collaborate on Blockchain projects (Gamefi)
 - 💬 Ask me about the change to cooperate
