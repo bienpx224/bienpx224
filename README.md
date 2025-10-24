@@ -7,5 +7,6 @@
 
 - 😄 I'm Software Developer 7+ years
 - 🔭 - I'm currently working on projects for the web, mobile, blockchain gamefi, Telegram mini app and Unity (mostly GAMES), AI Agent
-- 📫 How to reach me: [Telegram](https://telegram.me/bienpx224),  [Twitter](https://twitter.com/BienPham_BK) , [Discord](https://discord.com/users/8746)
+- 👥 I also have experience in team management and project management, leading and developing software projects with a skilled team of experienced engineers
+- 📫 How to reach me: [Telegram](https://telegram.me/bnana1212),  [Twitter](https://twitter.com/BienPham_BK) , [Discord](https://discord.com/users/8746)
 - ⚡ I wanna connect, learn, and develop further.  Don't hesitate to connect with me. 
